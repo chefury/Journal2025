@@ -1,3 +1,3 @@
 # January
 
-1. Saturday. I need a 
+1. Saturday. I need a direction.
