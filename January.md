@@ -4,4 +4,4 @@
 
 5. Sunday. Mostly clear, Sunrise:07:35,Sunset:17:04. We went to the playground today-no work. New goal: Reduce waist circumference to below 85cm. Highly saturated color clothing. Eat on time, sleep on time
 
-11. Staturday. partly cloudy, Sunrise:07:34,Sunset:17:10.
+11. Staturday. partly cloudy, Sunrise:07:34,Sunset:17:10. You can only get something when you want it.
