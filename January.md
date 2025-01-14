@@ -7,3 +7,6 @@
 11. Staturday. partly cloudy, Sunrise:07:34,Sunset:17:10. You can only get something when you want it. means that if you accept the status quo, you will never be able to change it.
 
 12. Sunday
+
+
+14. Tuesday, A big question.
