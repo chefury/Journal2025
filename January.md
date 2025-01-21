@@ -11,4 +11,4 @@
 
 14. Tuesday, A big question.
 
-21. Tuesday, First time gambling, Trump took away my 40,000 yuan today.
+21. Tuesday, First time gambling, Trump took away my $40,000 today.
