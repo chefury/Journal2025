@@ -12,3 +12,5 @@
 14. Tuesday, A big question.
 
 21. Tuesday, First time gambling, Trump took away my $40,000 today.
+
+29. Wednesday. 2025 The only gola: To make money.
