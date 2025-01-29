@@ -14,7 +14,5 @@
 
 21. Tuesday, First time gambling, Trump took away my $40,000 today.
 
-29. Wednesday. 2025 The only gola: To make money.
-
 29. Wednesday. 2025 The only gola: To make money. How to achieve it?
 
