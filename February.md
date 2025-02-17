@@ -8,4 +8,4 @@
 
 8. Saturday. A day as an architect.
 
-17. Monday. Sunny. A new week start. keep myself ,don't lost myself.
+17. Monday. Sunny. A new week starts. keep myself together,don't lose myself.
