@@ -7,3 +7,5 @@
 7. Friday.  Managing diabetes and its complications is a multifaceted approach, and addressing all the risk factors can make a significant difference in long-term health outcomes.
 
 8. Saturday. A day as an architect.
+
+17. Monday. Sunny. A new week start. keep myself ,don't lost myself.
