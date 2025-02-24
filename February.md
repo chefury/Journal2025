@@ -10,4 +10,4 @@
 
 17. Monday. Sunny. A new week starts. keep myself together,don't lose myself.
 
-24. Monday. Plan, I need a plan.
+24. Monday. Plan, I need a plan about myself.
