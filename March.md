@@ -1,3 +1,3 @@
 # February
 
-9. 
+9. Sunday. Sunny. Rest Today. 
