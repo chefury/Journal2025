@@ -1,5 +1,5 @@
 # February
 
-9. Sunday. Sunny. Rest Today. Enter a state where death could come at any moment.
+9. Sunday. Sunny. Rest Today. Enter a state where i can accept death at any moment.
 
-24. Monday. Day after day, year after year, life goes on like this until the end. How and when till get freemdom
+24. Monday. Day after day, year after year, life goes on like this until the end. How and when can one attain freemdom.
