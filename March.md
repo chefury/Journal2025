@@ -4,4 +4,4 @@
 
 24. Monday. Day after day, year after year, life goes on like this until the end. How and when can one attain freemdom.
 
-25. Tuesday. Sunny, Gale, a day of daze. a day of boring. 
+2511. Tuesday. Sunny, Gale, a day of daze. a day of boring. 
