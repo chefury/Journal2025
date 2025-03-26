@@ -1,4 +1,4 @@
-# February
+# Journal
 
 9. Sunday. Sunny. Rest Today. Enter a state where i can accept death at any moment.
 
