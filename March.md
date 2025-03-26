@@ -1,7 +1,7 @@
 # Journal
 
-9th. Sunday. Sunny. Rest Today. Enter a state where i can accept death at any moment.
+1. 9th. Sunday. Sunny. Rest Today. Enter a state where i can accept death at any moment.
 
-24th. Monday. Day after day, year after year, life goes on like this until the end. How and when can one attain freemdom.
+2. 24th. Monday. Day after day, year after year, life goes on like this until the end. How and when can one attain freemdom.
 
-25th. Tuesday. Sunny, Gale, a day of daze. a day of boring. 
+3. 25th. Tuesday. Sunny, Gale, a day of daze. a day of boring. 
