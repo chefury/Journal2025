@@ -14,4 +14,4 @@
 
 7. 29th. Wednesday. 2025 The only gola: To make money. How to achieve it?
 
-8. 31th. Monday. Today, I drove a passenger from Albania and learned something about the Balkan peninsula.
+8. 31th. Monday. Today, I drove a passenger from Albania and learned something about the Balkan peninsula. some days ago, I droved some women passengers from SMIC and Airlines.
