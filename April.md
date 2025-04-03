@@ -1,2 +1,2 @@
  # Journal
-1. 3th. One-quarter of the year has passed. Tomorrow is QingMingJie Holiday. The only thing that matters is making money.
+1. 3th. Tomorrow is QingMingJie Holiday. One-quarter of the year has passed.  The only thing that matters is making money. Bitcoin is the future, not Gold.
