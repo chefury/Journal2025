@@ -1,2 +1,2 @@
  # Journal
-1. 3th. One-quarter of the year has passed. Tomorrow is QingMingJie Holiday.
+1. 3th. One-quarter of the year has passed. Tomorrow is QingMingJie Holiday. Make money is only important thing.
