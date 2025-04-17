@@ -1,6 +1,6 @@
 # February
 
-1. 5th Wednesday. People should be treated as tools, but you should cherish and take care of your tools.
+1. 5th. Wednesday. People should be treated as tools, but you should cherish and take care of your tools.
 
 2. 6th. Thursday. Most Cloudy, Working.
 
