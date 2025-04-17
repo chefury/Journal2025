@@ -4,4 +4,4 @@
 
 2. 15th.  The gale is to continue at today.
 
-3. 17th. Thursday. Sunny. Key Words: English\College\Remote Education\CZ
+3. 17th. Thursday. Sunny. Key Words: English\College\Remote Education\CZ-----right now
