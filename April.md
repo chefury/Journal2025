@@ -6,4 +6,4 @@
 
 3. 17th. Thursday. Sunny. Key Words: English\College\Remote Education\CZ-----right now. Buld Code Server
 
-4. 23th. Wednesday. Sunny. Is study english in these days? No.
+4. 23th. Wednesday. Sunny. Am i stadying english these days? No, i am not.
