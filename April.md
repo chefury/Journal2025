@@ -5,3 +5,5 @@
 2. 15th.  The gale is to continue at today.
 
 3. 17th. Thursday. Sunny. Key Words: English\College\Remote Education\CZ-----right now. Buld Code Server
+
+4. 23th. Wednesday. Sunny. Is study english in these days? No.
