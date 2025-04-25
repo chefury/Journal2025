@@ -11,6 +11,3 @@
 5. 24th. Thursday. Sunny. Every green dot in the github means my thinking about life once.
 
 
-- [ ] 1. ceshi
-- [x] 2. test
-
