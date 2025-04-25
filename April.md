@@ -12,5 +12,5 @@
 
 
 - [] 1. ceshi
-- [] 2. test
+- [x] 2. test
 
